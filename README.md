@@ -4,7 +4,7 @@ These are a few of my favorite things:
 
 - Sunshine in Seattle
 - Raindrops on roses
-- Whiskers on kittens
+- Whiskers on puppies
 - Bright copper kettles
 - Warm woolen mittens
 - Tea on a rainy day.
